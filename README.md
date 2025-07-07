@@ -15,4 +15,4 @@
 
 我们还特别优化了SEO，页面标题和描述中巧妙地融入了“日本AV免费”、“无码”、“高清不卡”这些关键词，确保用户在搜索时能够快速找到本站资源。为了让您更方便地找到最新资源，页面提供“今日更新”和“本周热播”等标签，确保最新的热门视频一目了然。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong5 ）</span>
